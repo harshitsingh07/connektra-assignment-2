@@ -1,1 +1,0 @@
-# connektra-assignment-2
